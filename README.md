@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sou0max
+- 👀 I’m a student at Mackenzie University
+- 🌱 I’m currently learning HTML/JAVA/PYTHON/
+- 📫 You can reach me at instagram.com/_.maxzin
